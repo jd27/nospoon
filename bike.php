@@ -1,1 +1,1 @@
-ride my bike
+ride my bike chick
